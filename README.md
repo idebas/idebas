@@ -6,7 +6,7 @@
 
 ### Você pode enter em contado comigo 😎 com esse email ⏬
 
-kawagoncalves@gmail.com
+kawacgoncalves@gmail.com
 
 
 
